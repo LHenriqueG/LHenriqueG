@@ -1,7 +1,7 @@
 ### Olá, me chamo
 
 
-**LHenriqueG/LHenriqueG**
+**Luís Henrique**
 
 <!--
 Here are some ideas to get you started:
